@@ -1,0 +1,1 @@
+# quicknotepro-privacy
